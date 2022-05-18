@@ -4,7 +4,6 @@ Mei2022
 Bariznet2045???
 indahcell07
 B3ngkulu123
-Revancell741
 indonesia77
 Antcoba17
 23051979
